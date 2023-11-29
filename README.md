@@ -4,4 +4,4 @@
 
 [telegram](https://t.me/RandomJell)
 
-[Professor](https://www.leagueofgraphs.com/ru/summoner/ru/RandomJel#championsData-all-queues)
+[Professor в нём полная хуйня посравнению с этим](https://xdx.gg/randomjel-moe)

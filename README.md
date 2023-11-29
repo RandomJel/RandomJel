@@ -4,4 +4,4 @@
 
 [telegram](https://t.me/RandomJell)
 
-[Professor в нём полная хуйня посравнению с этим](https://xdx.gg/randomjel-moe)
+[Professor полная хуйня посравнению с этим](https://xdx.gg/randomjel-moe)
